@@ -1,11 +1,14 @@
-# Covid19 protection starts in the head
+![all products maskunity](pics/maskunity-products.png)
+---
+
+# Covid19 protection includes the other
 Wear swag to promote:
 
 * "My mask protects you. Your mask protects me" [tiny.cc/maskunity](http://tiny.cc/maskunity)
 * "Pandemic Tools for Minds v20" = long, useful text [tiny.cc/ptools](http://tiny.cc/ptools) 
 * retweet this: 
 
-Thanks. Dr Andreas Krueger, 17.4.2020
+Thanks. [Andreas Krueger](https://medium.com/@andreaskruger/), 17.4.2020
 
 ---
 
@@ -55,4 +58,4 @@ Choose color & size. If you copy designs to (skirts, cups, mouse pads, etc), con
 * "My mask protects you, your mask protects me" = [tiny.cc/maskunity = WEAR](http://tiny.cc/maskunity)
 * retweet this: 
 
-Thanks. Dr Andreas Krueger, 17.4.2020
+Thanks. [Andreas Krueger](https://medium.com/@andreaskruger/), 17.4.2020
