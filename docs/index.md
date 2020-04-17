@@ -6,7 +6,7 @@ Wear swag to promote:
 
 * "My mask protects you. Your mask protects me" [tiny.cc/maskunity](http://tiny.cc/maskunity)
 * "Pandemic Tools for Minds v20" = long, useful text [tiny.cc/ptools](http://tiny.cc/ptools) 
-* retweet this: 
+* retweet this: [twitter.com/drandreaskruger/status/1251185658732982275](https://twitter.com/drandreaskruger/status/1251185658732982275)
 
 Thanks. [Andreas Krueger](https://medium.com/@andreaskruger/), 17.4.2020
 
@@ -56,6 +56,6 @@ Choose color & size. If you copy designs to (skirts, cups, mouse pads, etc), con
 
 * "Pandemic Tools for Minds" = [tiny.cc/ptools = READ](http://tiny.cc/ptools) 
 * "My mask protects you, your mask protects me" = [tiny.cc/maskunity = WEAR](http://tiny.cc/maskunity)
-* retweet this: 
+* retweet this: [twitter.com/drandreaskruger/status/1251185658732982275](https://twitter.com/drandreaskruger/status/1251185658732982275)
 
 Thanks. [Andreas Krueger](https://medium.com/@andreaskruger/), 17.4.2020
