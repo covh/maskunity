@@ -41,7 +41,7 @@ buy here
 
 ### Baseball Cap
 
-€32.99 buy here https://sprd.co/FKArKfQ   
+€32.99 [buy here sprd.co/FKArKfQ](https://sprd.co/FKArKfQ)
 €18.99 if you remove the side texts, and keep only the front
 
 ![baseballcap](pics/baseballcap.png)
