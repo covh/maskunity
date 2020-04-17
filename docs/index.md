@@ -1,8 +1,9 @@
-# MaskUnity: Covid19 protection starts in the head
+# Covid19 protection starts in the head
 Wear swag to promote:
 
 * "My mask protects you. Your mask protects me" [tiny.cc/maskunity](http://tiny.cc/maskunity)
 * "Pandemic Tools for Minds v20" = long, useful text [tiny.cc/ptools](http://tiny.cc/ptools) 
+* retweet this: 
 
 Thanks. Dr Andreas Krueger, 17.4.2020
 
@@ -42,11 +43,16 @@ Choose color & size. If you copy designs to (skirts, cups, mouse pads, etc), con
 ### Baseball Cap
 
 €32.99 [buy here sprd.co/FKArKfQ](https://sprd.co/FKArKfQ)  
-€18.99 if you remove the side texts, and keep only the front
+€18.99 nothing on the sides, keep only the [FRONT design: sprd.co/6tvlsIH](https://sprd.co/6tvlsIH)
 
 ![baseballcap](pics/baseballcap.png)
+
+---
 
 ## please spread the word:
 
 * "Pandemic Tools for Minds" = [tiny.cc/ptools = READ](http://tiny.cc/ptools) 
 * "My mask protects you, your mask protects me" = [tiny.cc/maskunity = WEAR](http://tiny.cc/maskunity)
+* retweet this: 
+
+Thanks. Dr Andreas Krueger, 17.4.2020
