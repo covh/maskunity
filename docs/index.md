@@ -4,11 +4,12 @@
 # Covid19 protection includes the other
 Wear swag to promote:
 
-* "My mask protects you. Your mask protects me" [tiny.cc/maskunity](http://tiny.cc/maskunity)
-* "Pandemic Tools for Minds v20" = long, useful text [tiny.cc/ptools](http://tiny.cc/ptools) 
-* retweet this: [Pandemic Tools for Minds - v21 ... http://tiny.cc/pTools](https://twitter.com/drandreaskruger/status/1251496902123753472)
+* "My mask protects you. Your mask protects me" [tiny.cc/maskUnity](http://tiny.cc/maskUnity)
+* "Pandemic Tools for Minds v23" = useful text [tiny.cc/pTools](http://tiny.cc/pTools) - now also as PDF download: [tiny.cc/pTpdf](http://tiny.cc/pTpdf)
+* retweet this: [Pandemic Tools for Minds - v21 ...](https://twitter.com/drandreaskruger/status/1251538175132078080)
 
-Thanks. [Andreas Krueger](https://medium.com/@andreaskruger/), 17.4.2020
+Thanks. [Andreas Krueger](https://medium.com/@andreaskruger/), 23.4.2020
+
 
 ---
 
@@ -54,8 +55,9 @@ Choose color & size. If you copy designs to (skirts, cups, mouse pads, etc), con
 
 ## please spread the word:
 
-* "Pandemic Tools for Minds" = [tiny.cc/ptools = READ](http://tiny.cc/ptools) 
-* "My mask protects you, your mask protects me" = [tiny.cc/maskunity = WEAR](http://tiny.cc/maskunity)
-* retweet this: [Pandemic Tools for Minds - v21 ... http://tiny.cc/pTools](https://twitter.com/drandreaskruger/status/1251496902123753472)
 
-Thanks. [Andreas Krueger](https://medium.com/@andreaskruger/), 17.4.2020
+* "My mask protects you. Your mask protects me" [tiny.cc/maskUnity](http://tiny.cc/maskUnity)
+* "Pandemic Tools for Minds v23" = useful text [tiny.cc/pTools](http://tiny.cc/pTools) - now also as PDF download: [tiny.cc/pTpdf](http://tiny.cc/pTpdf)
+* retweet this: [Pandemic Tools for Minds - v21 ...](https://twitter.com/drandreaskruger/status/1251538175132078080)
+
+Thanks. [Andreas Krueger](https://medium.com/@andreaskruger/), 23.4.2020
